@@ -1,7 +1,8 @@
 # Kanguva-Full-Movie-HD-720p-1080p-Free-Download
 Welcome to HDCinemaCloud, your go-to website for streaming and downloading the latest movies in HD quality. We offer a seamless experience with fast downloads and high-quality video in 720p and 1080p formats. Watch or download the Kanguva Full Movie now and enjoy it in stunning HD resolution. Don't miss out—grab your copy today at the link below!
 
-
+Download 1080p :- https://hdcinemacloud.web.app/
+Download 720p :- https://hdcinemacloud.web.app/
 
 1. Kanguva full movie HD
 2. Kanguva movie download 720p
